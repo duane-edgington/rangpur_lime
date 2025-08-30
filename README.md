@@ -1,5 +1,6 @@
 # rangpur_lime
-documentation
+
+
 We have a rangpur lime tree, about 2 years old, in a 26" diameter pot. It is outside. It gets about 4 hours of sun per day. It is on a wheeled base that rests on concrete patio. It gets watered every few days. It has never been fed. It is not thriving -- it is about the same size as when we planted it as a sapling. It has not grown. It has not produced fruit. what should we do?
 
 Of course. This is a very common situation for container citrus trees, and the good news is that it's almost certainly fixable. A two-year-old tree that hasn't grown at all points to a few critical issues.
